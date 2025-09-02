@@ -1,6 +1,4 @@
-# Time-Measures-Space-Change-Transformation-Refresh_Update
-
-How to Understand the Time's Concept, Definition, and Meaning ? 
+# Time Measures Space's Change-Transformation-Refresh. | How to Understand the Time's Concept, Definition, and Meaning ? 
 
 How to Define the Direction of Time Using Entropy Increase? 
 
